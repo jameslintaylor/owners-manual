@@ -50,7 +50,7 @@ manager told me to do it.
 
 - I do my best to be direct.  However, being direct has the tendency
   to come off as curt and abrasive.  I will always opt to make sure
-  that the person I am talking to feels respected.
+  that the person I am talking to knows they are respected.
   
 - If I'm passionate about what I'm speaking about, I won't hide my
   emotions.
@@ -67,10 +67,10 @@ manager told me to do it.
   Let's talk about your weekend, and after that we can talk about
   work, if you want.
 
-- **Space**.  I am not at my best when I feel trapped.  Whether it be a
-  rigid schedule, a tired way of thinking, or external pressure,
-  feeling trapped does nothing for my personal well-being, nor the
-  work I produce.  Idealistic? Definitely.
+- **Space**.  I am not at my best when I feel trapped.  Whether it be
+  a rigid schedule, a tired way of thinking, or external pressure,
+  feeling trapped does nothing for my personal wellbeing, nor the work
+  I produce.  Idealistic? Definitely.
   
 ## What I don't value
 
